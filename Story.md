@@ -1,0 +1,2 @@
+Once upon a time in a town there were two animal groups Rabbit gang and Tortoise Gang. They were big enimies and used to fight a lot. Once there was a festival in that town and there was an eating competition going on. Rabbit ate 14 chocolates and the Tortoise gang said that our captian can eat more. So the tortoise ate 15 chocolates and rabbit angrily said that why don't we settle this with a race.
+As we all know , tortoise are slower than rabbits. The rabbit was way ahead the tortoise. But the tortoise was not giving up.
